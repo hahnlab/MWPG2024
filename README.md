@@ -14,3 +14,14 @@ We will notify people interested in giving a talk as to whether their abstract h
 There are many places to stay in and around campus. If you’d like to stay in the on-campus hotel (https://imu.indiana.edu/hotel/index.html) you will get a 10% discount by using the code MWPG24.
 
 Stay tuned for more details on the meeting schedule!
+
+**History of MWPG**
+2024  Indiana University, Bloomington
+2023  University of Michigan, Ann Arbor
+2021  University of Wisconsin, Madison
+2019  University of Chicago
+2018  University of Minnesota, Twin Cities
+2017  Michigan State University
+2016  University of Chicago
+2015  University of Michigan
+2014  University of Chicago
