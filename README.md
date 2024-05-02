@@ -19,20 +19,20 @@ ________________________________________________________
 
 **History of MWPG**
 
-2024      Indiana University, Bloomington
+2024    &ensp;   Indiana University, Bloomington
 
-2023      University of Michigan, Ann Arbor
+2023      &ensp; University of Michigan, Ann Arbor
 
-2021      University of Wisconsin, Madison
+2021     &ensp;  University of Wisconsin, Madison
 
-2019      University of Chicago
+2019    &ensp;   University of Chicago
 
-2018      University of Minnesota, Twin Cities
+2018    &ensp;   University of Minnesota, Twin Cities
 
-2017      Michigan State University
+2017   &ensp;    Michigan State University
 
-2016      University of Chicago
+2016     &ensp;  University of Chicago
 
-2015      University of Michigan
+2015     &ensp;  University of Michigan
 
-2014      University of Chicago
+2014    &ensp;   University of Chicago
