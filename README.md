@@ -33,6 +33,6 @@ ________________________________________________________
 
 2016     &ensp;  University of Chicago
 
-2015     &ensp;  University of Michigan
+2015     &ensp;  University of Michigan, Ann Arbor
 
 2014    &ensp;   University of Chicago
