@@ -15,7 +15,7 @@ There are many places to stay in and around campus. If you’d like to stay in t
 
 Stay tuned for more details on the meeting schedule!
 
-
+________________________________________________________
 
 **History of MWPG**
 
