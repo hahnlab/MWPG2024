@@ -3,7 +3,7 @@ Midwest Population Genetics conference 2024
 
 Registration is now open for the 9th annual Midwest Population Genetics meeting, to be held at Indiana University, Bloomington. The conference will begin at noon on Friday, August 9th and run through ~5 pm on August 10th, with a conference dinner Friday night. The main conference venue will be the Biology Building (1001 E. 3rd St.).
 
-There will be the opportunity to give 20-minute talks, as well as a poster session. This is a trainee-oriented meeting, with largely students and postdocs presenting their work. Mike Wade will be the keynote speaker.
+There will be the opportunity to give short talks, as well as a poster session. This is a trainee-oriented meeting, with largely students and postdocs presenting their work. Mike Wade will be the keynote speaker.
 
 If you would like to attend, please register here by June 1st (or until we run out of room):
 
