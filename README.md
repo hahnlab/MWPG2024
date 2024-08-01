@@ -1,15 +1,14 @@
 # MWPG2024
 Midwest Population Genetics conference 2024
 
-Registration is now open for the 9th annual Midwest Population Genetics meeting, to be held at Indiana University, Bloomington. The conference will begin at noon on Friday, August 9th and run through ~5 pm on August 10th, with a conference dinner Friday night. The main conference venue will be the Biology Building (1001 E. 3rd St.).
+The 9th annual Midwest Population Genetics meeting, to be held at Indiana University, Bloomington. The conference will begin at noon on Friday, August 9th and run through ~5 pm on August 10th, with a conference dinner Friday night. 
 
-There will be the opportunity to give short talks, as well as a poster session. This is a trainee-oriented meeting, with largely students and postdocs presenting their work. Mike Wade will be the keynote speaker.
+The main conference venue will be the Biology Building (1001 E. 3rd St.) (https://www.google.com/maps/place/Biology+Building/@39.1648848,-86.5395362,15z/data=!3m1!4b1!4m6!3m5!1s0x886c673b0cd6a7f1:0x188e43d018fc899c!8m2!3d39.1648863!4d-86.5210822!16s%2Fg%2F11pzztjw4x?entry=ttu).
 
-If you would like to attend, please register here by June 1st (or until we run out of room):
+The easiest place to park if you're driving directly to campus is the Atwater Parking Garage (https://www.google.com/maps/search/atwater+Parking+Garage/@39.1677561,-86.5311063,16z/data=!3m1!4b1?entry=ttu). Note that you must pay to park here, if you leave before 6 pm on Friday (it is free on weekends). The streets around campus require local permits, so please don't park there on Friday (no permits needed on weekends).
 
-https://docs.google.com/forms/d/1GH2W6xP6P5KFfYQOtRO4vcqAsR4-7rsHQupkfNpjvyo
+There will be short talks, as well as a poster session. This is a trainee-oriented meeting, with largely students and postdocs presenting their work. Mike Wade will be the keynote speaker.
 
-We will notify people interested in giving a talk as to whether their abstract has been selected by July 1.
 
 There are many places to stay in and around campus. If you’d like to stay in the on-campus hotel (https://imu.indiana.edu/hotel/index.html) you will get a 10% discount by using the code MWPG24.
 
