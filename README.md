@@ -11,6 +11,8 @@ There is a great line-up of talks planned. Please see [here](https://docs.google
 
 Since the first talk begins at 12:30, please hang your posters before then. The poster boards are 4'x4', so should fit any size poster.
 
+**If you're sick and can't make it, please let us know. No problem at all--we just don't want to make everyone sick.
+
 
 ________________________________________________________
 
