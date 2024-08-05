@@ -9,7 +9,7 @@ The easiest place to park if you're driving to campus is the [Atwater Parking Ga
 
 There is a great line-up of talks planned. Please see [here](https://docs.google.com/document/d/1spLdFTdgq48Zm6xpuhjHO0J6CTotknghVwTgCdLhoLc/edit) for the current schedule.
 
-Since the first talk begins at 12:30, please hang your posters before then. The poster boards are 4'x4', so should fit any size poster.
+Since the talks begin at 12:20, please hang your posters before then. The poster boards are 4'x4', so should fit any size poster.
 
 **If you're sick and can't make it, please let us know. No problem at all--we just need to know so we can try to rearrange the schedule.
 
